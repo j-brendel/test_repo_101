@@ -1,3 +1,3 @@
-* I am new here
+* Ich bin neu hier
 
-Na dann erst ein mal herlich Willkommen!
+Na dann erst einmal herzlich Willkommen!
